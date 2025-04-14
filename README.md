@@ -7,7 +7,7 @@
 
 ## 🙋‍♂️ About Me
 
-- 🔭 I’m currently working on **[Personal Projects](https://jikan.xyz)**
+- 🔭 I’m currently working on **[Personal Projects](https://private.private)**
 
 - 🌱 I’m currently learning **everything I can.**
 
